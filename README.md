@@ -1,5 +1,3 @@
-# imy-ai-ethics
-Profile
 
 # Hi, I’m Imogen 👋
 
